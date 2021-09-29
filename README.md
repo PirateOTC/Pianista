@@ -1,0 +1,2 @@
+# Pianista
+i hate synthesia
